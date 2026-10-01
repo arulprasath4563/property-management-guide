@@ -1,6 +1,6 @@
 # Property Management: A Beginner’s Guide to Managing Rentals with Confidence
 
-A rental can need attention at any hour: a tenant has a question, a pipe leaks, or rent arrives late. Property management means handling the work that keeps a rental occupied, maintained, and financially organized. A clear plan helps you protect the property and set expectations before issues arise.
+A rental can need attention at any hour: a tenant has a question, a pipe leaks, or rent arrives late. Property management means handling the work that keeps a rental occupied, maintained, and financially organized. A clear plan helps you [protect](https://gsarrealestateacademy.com/) the property and set expectations before issues arise.
 
 This guide is for new rental owners weighing self-management against professional help. You’ll learn what real estate property management covers, how to set up basic systems, and what to check before hiring a manager.
 
@@ -48,7 +48,7 @@ Good rental operations start before the first tenant moves in. Set clear process
 
 ---
 
-## 3. Decide Whether Property Management Companies Are Worth the Cost
+## 3. Decide Whether [Property Management](https://gsarrealestateacademy.com/) Companies Are Worth the Cost
 
 Hiring a firm can free up time, but services and fees vary.
 
@@ -70,7 +70,7 @@ Decide if you want a manager to handle rent collection, leasing, and repair call
 3. Take dated photos and notes before move-in to document initial conditions.
 
 ### Set Up a Repeatable Routine
-Use a dedicated calendar to schedule rent tracking, lease renewals, repair follow-ups, and property inspections.
+Use a dedicated calendar to schedule rent tracking, lease renewals, repair follow-ups, and [property inspections](https://gsarrealestateacademy.com/).
 
 ---
 
